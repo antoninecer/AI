@@ -65,6 +65,7 @@ Specifické označení částí
 * [Darkly Chorus]
     * Význam: Refrén s temnou nebo zlověstnou atmosférou.
     * Funkce: Posiluje temné nebo dramatické téma písně, často následuje po kontrastní sloce nebo jiném refrénu.
+Bacha nepoužívej závorky, on to přezpívá taky
 Muzika - inzerce
 
 tady zhudebnuji bibli pro lidi, kteri by si to jinak neprecetli 
