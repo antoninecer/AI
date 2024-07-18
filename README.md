@@ -69,3 +69,7 @@ Muzika - inzerce
 
 tady zhudebnuji bibli pro lidi, kteri by si to jinak neprecetli 
 https://suno.com/playlist/bfc8fafd-da4a-4e87-ad78-43ecd83697c7
+
+tady mé pokusy muziky
+https://suno.com/@salsaingkickdrum677
+
